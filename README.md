@@ -1,3 +1,1 @@
-# lukasenko
-
 co to
